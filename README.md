@@ -2,3 +2,4 @@
 LFG
 XRP is not a security
 too the moon
+linea mainnet is live
