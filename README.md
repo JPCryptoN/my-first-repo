@@ -2,3 +2,4 @@
 ETH
 X
 BASE
+JPC token
