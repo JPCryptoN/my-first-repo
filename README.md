@@ -1,5 +1,5 @@
 # my-first-repo
 ETH
 X
-BASE
+BASE is really quick and chip
 JPC token
