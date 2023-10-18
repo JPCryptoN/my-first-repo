@@ -6,3 +6,4 @@ JPC token
 LFG!!!
 halving is coming!!!
 LFG!!!
+hi
