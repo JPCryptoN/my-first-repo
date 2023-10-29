@@ -7,4 +7,3 @@ LFG!!!
 halving is coming!!!
 LFG!!!
 btc to the moon!!!
-.
