@@ -7,4 +7,4 @@ LFG!!!
 halving is coming!!!
 LFG!!!
 btc to the moon!!!
-crypto market to the moon!!!
+crypto market to the moon!!
