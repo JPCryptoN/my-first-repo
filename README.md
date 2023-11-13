@@ -9,4 +9,5 @@ LFG!!!
 btc to the moon!!!
 crypto market to the moon!!
 ARB to the moon??
-soon
+bear market is finished?
+
