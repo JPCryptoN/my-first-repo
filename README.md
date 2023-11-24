@@ -11,3 +11,4 @@ crypto market to the moon!!
 ARB to the moon??
 bear market is finished?
 TIA is next gem!!!
+hi
