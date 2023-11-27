@@ -12,3 +12,4 @@ ARB to the moon??
 bear market is finished?
 TIA is next gem!!!
 are you ready next week
+gogogo
