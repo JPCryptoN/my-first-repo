@@ -12,3 +12,4 @@ ARB to the moon??
 bear market is finished?
 TIA is next gem!!!
 LFG!!!
+to the moon baby
