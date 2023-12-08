@@ -13,4 +13,4 @@ bear market is finished?
 TIA is next gem!!!
 LFG!!!
 to the moon baby
-LFG
+LFG!!!
