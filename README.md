@@ -14,4 +14,4 @@ TIA is next gem!!!
 LFG!!!
 to the moon baby
 LFG!!!
-altseason is begin
+altseason is begin soon
