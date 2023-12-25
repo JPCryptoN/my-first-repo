@@ -16,4 +16,3 @@ LFG!!!
 happy crismass.
 Altseason??!!
 ARB to the moon??
-hmm
