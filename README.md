@@ -13,7 +13,6 @@ TIA is next gem!!!
 LFG!!!
 to the moon baby
 LFG!!!
-happy crismass.
 Altseason??!!
 ARB to the moon
 altseason
