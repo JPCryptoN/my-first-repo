@@ -13,6 +13,5 @@ TIA is next gem!!!
 LFG!!!
 to the moon baby
 LFG!!!
-Altseason??!!
 ARB to the moon
 altseason
