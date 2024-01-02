@@ -15,4 +15,4 @@ to the moon baby
 LFG!!!
 ARB to the moon
 altseason
-Happy new Year
+Happy new Year!
