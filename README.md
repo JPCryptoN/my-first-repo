@@ -12,7 +12,6 @@ bear market is finished?
 TIA is next gem!!!
 LFG!!!
 to the moon baby
-LFG!!!
 ARB to the moon
 altseason
 Happy new Year!
