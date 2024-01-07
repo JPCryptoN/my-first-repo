@@ -4,7 +4,6 @@ X
 BASE is really quick and chip
 JPC token
 halving is coming!!!
-LFG!!!
 btc to the moon!!!
 crypto market to the moon!!
 bear market is finished?
