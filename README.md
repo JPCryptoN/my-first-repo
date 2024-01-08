@@ -1,6 +1,5 @@
 # my-first-repo
 ETH
-X
 BASE is really quick and chip
 JPC token
 halving is coming!!!
