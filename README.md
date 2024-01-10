@@ -12,4 +12,3 @@ to the moon baby
 ARB to the moon
 altseason
 Happy new Year!
-.
