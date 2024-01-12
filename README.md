@@ -12,4 +12,4 @@ to the moon baby
 ARB to the moon
 altseason
 Happy new Year!
-Bitcoin ETF Approved
+Bitcoin ETF Approved.
