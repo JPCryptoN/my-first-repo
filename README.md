@@ -1,7 +1,6 @@
 # my-first-repo
 ETH
 BASE is really quick and chip
-JPC token
 halving is coming!!!
 btc to the moon!!!
 crypto market to the moon!!
