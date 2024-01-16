@@ -13,4 +13,4 @@ altseason
 Happy new Year!
 Bitcoin ETF Approved.
 LFG to ETH ETF
-alts to the moon
+alts to the moon!!!
