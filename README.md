@@ -9,8 +9,8 @@ TIA is next gem!!!
 LFG!!!
 to the moon baby
 ARB to the moon
-altseason
 Happy new Year!
 Bitcoin ETF Approved.
 LFG to ETH ETF
 alts to the moon!
+altseason
