@@ -16,4 +16,3 @@ alts to the moon!
 altseason!
 are you ready?
 the last leg? maybe!!!
-Altlayer is lunched
