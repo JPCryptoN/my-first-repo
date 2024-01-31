@@ -15,5 +15,5 @@ LFG to ETH ETF
 alts to the moon!
 altseason!
 are you ready?
-the last leg? maybe!!!
+the last leg?
 LFG!!!
