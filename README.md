@@ -17,4 +17,4 @@ altseason!
 are you ready?
 the last leg?
 LFG!!!
-zetachain live on mainnet
+zetachain on fire
