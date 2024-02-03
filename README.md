@@ -17,4 +17,3 @@ altseason!
 are you ready?
 the last leg?
 LFG!!!
-zetachain on fire
