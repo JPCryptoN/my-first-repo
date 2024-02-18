@@ -1,6 +1,5 @@
 # my-first-repo
 ETH
-BASE is really quick and chip
 halving is coming!!!
 btc to the moon!!!
 crypto market to the moon!!
@@ -16,4 +15,3 @@ alts to the moon!
 altseason!
 the last leg?
 LFG!!!
-
