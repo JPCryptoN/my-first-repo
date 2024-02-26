@@ -15,4 +15,3 @@ alts to the moon!
 altseason!
 LFG!!!
 go go go!!!
-soon :D
