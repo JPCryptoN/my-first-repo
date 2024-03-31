@@ -17,4 +17,4 @@ LFG!!!
 to the ath soon!!!
 meme season
 degen too the moon!!!
-degen network is running!!
+degen network is running!!!
