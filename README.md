@@ -18,4 +18,4 @@ to the ath soon!!!
 meme season
 degen too the moon!!!
 degen network is running!!!
-degen chain tokens on the fire
+degen chain tokens on the fire!
