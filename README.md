@@ -14,7 +14,6 @@ LFG to ETH ETF
 alts to the moon!
 altseason!
 LFG!!!
-to the ath soon!!!
 meme season
 degen too the moon!!!
 degen network is running!!!
