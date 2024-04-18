@@ -19,3 +19,4 @@ degen too the moon!!!
 degen network is running!!!
 degen chain tokens on the fire!!!
 lets build together!!
+halving is comming!
