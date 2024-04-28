@@ -18,6 +18,6 @@ meme season
 degen too the moon!!!
 degen network is running!!!
 degen chain tokens on the fire!!!
-lets build together!!
+lets build together!!!
 halving is done!!!
 calm down!!!
