@@ -13,7 +13,6 @@ Bitcoin ETF Approved.
 LFG to ETH ETF
 alts to the moon!
 altseason!
-LFG!!!
 meme season
 degen too the moon!!!
 lets build together!!!
