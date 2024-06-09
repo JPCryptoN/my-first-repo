@@ -19,4 +19,4 @@ lets build together!!!
 halving is done!!!
 ETH ETF approved!!!
 alt season soon!!!
-heehaaaaaa
+heehaaaaaaa
