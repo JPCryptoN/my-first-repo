@@ -21,3 +21,4 @@ ETH ETF approved!!!
 alt season soon!!!
 oh no oh no
 cpi is on fire!!
+hi
