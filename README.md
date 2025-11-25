@@ -21,7 +21,7 @@ ETH ETF approved!!!
 alt season soon!!!
 oh no oh no
 hi gm lfg!!!
-september!!!
+september!!!!
 hmmmmmmmmmmmmmmmmmmmmmmm
 lfg
 to the mooon!
