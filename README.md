@@ -22,7 +22,7 @@ alt season soon!!!
 oh no oh no
 hi gm lfg!!!
 september!!!!
-hmmmmmmmmmmmmmmmmmmmm
+hmmmmmmmmmmmmmmmmmmmmM
 lfg
 to the mooon!
 idunbivniouviouosd
